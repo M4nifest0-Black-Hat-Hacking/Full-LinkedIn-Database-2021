@@ -32,18 +32,13 @@
 
 -💀Torrent file size 480 KB Total file size 180 GB Total countries Good luck
 
-# How to ger:
-----------------------
-
-🔞The M4nifest0 (M4) team ☠️ is a security team from the Black Hat hacker group🏴‍☠️that has set up public sites👀, destroyed government sites🦠, and disclosed information around the world to enforce people's rights.💀💪
-🛒 https://t.me/M4nifest0
-
 *******************************************
 
-➖ The rest of your file information : 
-💾  Size : 474.07 KB
-File sharing link:
-📥 https://t.me/M4nifest0_bot?start=_HEJIJLKSV
+- ➖ The rest of your file information : 
+
+- 💾  Size : 474.07 KB
+
+- 📥 DOWNLOAD ( https://t.me/M4nifest0_bot?start=_HEJIJLKSV)
 
 *******************************************
 
